@@ -2,7 +2,7 @@
 - 👀 I’m interested in Tech, Marketing, Graphic Design and Web Developing.
 - 🌱 I’m currently learning Social Media Management, Coding
 - 💞️ I’m looking to collaborate on projects that help me get started in the world of Tech.
-- 📫 How to reach me 
+- 📫 How to reach me, mateoalcantaro2001@gmail.com , IG: Mateoalcantaro y https://www.behance.net/mateoalcantaro.
 
 <!---
 Alcantaromateo/Alcantaromateo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
